@@ -6,3 +6,4 @@
 * John Bailey's gone to work in the NHS. He's gonna be a doctor?
 * Skin issue? No problem, I'm a gynaecologist.
 * I know the Heimlichan.
+* Remeber as a kid when you'd suck railings.
