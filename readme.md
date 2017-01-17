@@ -8,3 +8,5 @@
 * I know the Heimlichan.
 * Remeber as a kid when you'd suck railings.
 * You look like Einstein's monster
+* You're my food frornds
+* You're a fudge stasher
