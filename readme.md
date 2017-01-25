@@ -10,3 +10,5 @@
 * You look like Einstein's monster
 * You're my food frornds
 * You're a fudge stasher
+* I wanna eat everyone's lollipops
+* The prime minister is TRESemmé
