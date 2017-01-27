@@ -12,3 +12,4 @@
 * You're a fudge stasher
 * I wanna eat everyone's lollipops
 * The prime minister is TRESemmé
+* Why Ampersand's banner has an "and" sign on it?
