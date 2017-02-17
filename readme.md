@@ -16,7 +16,7 @@
 * My feet smell like childrens play areas
 * I concur. Is that a different language or is it English?
 * I wake up dry as hell.
-* Can I have a go on yoir little thing
+* Can I have a go on your little thing
 * Oh my god I've got excited fingers
 * I am gonna smash my doughnut
 * Ready made prawns
