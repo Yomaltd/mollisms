@@ -19,5 +19,5 @@
 * Can I have a go on yoir little thing
 * Oh my god I've got excited fingers
 * I am gonna smash my doughnut
-* Ready my prawns
+* Ready made prawns
 * Not everything is broken by us
